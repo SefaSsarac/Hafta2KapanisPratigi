@@ -1,0 +1,1 @@
+Öğrendiklerimizi pratiklerle pekiştirdiğimiz ve ortaya çıkan programlar
